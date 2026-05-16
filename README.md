@@ -19,7 +19,15 @@
   <li>Risorse strategiche illimitate. Costruisci, potenzia e sviluppa il tuo rifugio senza limiti.</li>
 </ul>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Last War Survival](https://rebrand.ly/SwiperGames)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/SwiperGames">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Funzionalità dei Trucchi per Last War Survival</h2>
 
@@ -60,4 +68,12 @@ Sì, il nostro generatore è dotato di protezione anti-ban e di un sistema di si
 
 <p>Il momento di agire è adesso. Non perdere l'occasione di ottenere risorse illimitate e sbloccare tutte le funzionalità premium di <strong>Last War Survival</strong>. Migliaia di giocatori stanno già sfruttando i nostri <strong>trucchi per Last War Survival</strong> per avanzare rapidamente e diventare i migliori nel gioco. Non rimanere indietro: clicca subito sul pulsante qui sotto e ottieni il tuo vantaggio competitivo!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Last War Survival](https://rebrand.ly/SwiperGames)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/SwiperGames">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
